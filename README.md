@@ -1,1 +1,2 @@
-# Freezed-Dried-Vegetable-Suppliler
+# Freezed Dried Vegetable Suppliler
+[Freeze dried vegetable suppliler](https://pamirks.com/) is made when frozen raw materials are placed in a refrigerated vacuum system and, without thawing, are dehydrated. The ice in the product is sublimated into water vapor. During the freeze-drying process, cell structure remains intact. It is a healthy food preservation method, as it retains most of the beneficial plant compounds and nutrients in foods, as well as their color, taste, and appearance. However, it doesn't kill harmful bacteria. Therefore, you must cook raw foods before freeze-drying them. 
